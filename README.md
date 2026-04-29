@@ -68,4 +68,4 @@ Todas as imagens são de uso livre via [Unsplash](https://unsplash.com) e [Pexel
 ## Autor
 
 Feito por Yuri (Castro Design).  
-Entre em contato via [LinkedIn](https://www.linkedin.com/in/yuri-fernandes-admin/) ou [Instagram](https://www.instagram.com/yuri_f_c_/).
+Entre em contato via [LinkedIn](https://www.linkedin.com/in/yuri-fernandes-admin/) ou [Instagram](https://www.instagram.com/yuricastro.design/).
